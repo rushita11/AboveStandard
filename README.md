@@ -1,2 +1,2 @@
 # AboveStandard
-Authour - Rushita Thummar
+Authour - Rushita Thummars
